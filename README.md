@@ -37,7 +37,9 @@
 
 - Proof of work
 
-**A big thanks to the Green NFT communitites over the world for this extensive list.**
+**A big thanks to jose Andres @never_render for sharing his knowledge and experience**
+
+**Check out https://cleannfts.org/ by @thebadlament OR join the discussion @discord https://discord.com/invite/AXa8T4PfHE**
 
 
 
